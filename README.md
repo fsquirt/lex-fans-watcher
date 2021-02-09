@@ -7,5 +7,7 @@
 
 [贴吧帖子链接](https://tieba.baidu.com/p/7222227757?red_tag=2361796980)
 
+谢特之前打字太快把main打成mian了
+
 # 恭喜LEX喜提封号！！
 ![QQ截图20210208233947.png](https://i.loli.net/2021/02/08/xaWyrISNVL7Dhqz.png)
